@@ -1,4 +1,4 @@
-#  
+#  advanced Script for break a brainrot egg offers the most advanced break a brainrot egg Script, with teleport and infinite resources. Perfect for
 
 
 
